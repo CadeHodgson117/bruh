@@ -1,1 +1,2 @@
-# CadeHodgson117.github.io
+# CadeHodgson.github.io
+https://github.com/CadeHodgson117
